@@ -1,4 +1,4 @@
-Christmas Email -  A Responsive Christmas Email Template to increase your Christmas sells instantly!
+Christmas Email -  A Responsive Christmas Email Template
 ===============
 
 Impress your customer and get more sells with Christmas Email – A Responsive Christmas email template. Awesome graphics and amazing typography made it one of the best Responsive Christmas Email template.
